@@ -11,7 +11,7 @@
 吕煜悦 1997-11-25
 呜呜姐 Tecent QQ：875925275
        住址：福建省厦门思明区莲前西路金鸡亭小区 30栋68梯101
-![image](https://github.com/sunyiningCN/Chinese-Girl/blob/main/%E5%AD%AB%E5%81%A5%E5%AF%A7.png)
+
 王婉宁 中共国身份证：411327199702280065
 抱走小王 Tecent QQ：765947119
        支付宝：18858499447
