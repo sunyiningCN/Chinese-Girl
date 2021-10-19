@@ -17,7 +17,7 @@
        支付宝：18858499447
        住址：浙江省宁波市海曙区郢奉路36号
 王咏（母）浙江省宁波市星玥时代文化传播有限公司
- ![image](https://github.com/sunyiningCN/Chinese-Girl/blob/main/%E5%AD%AB%E5%81%A5%E5%AF%A7.png)
+ ![image](https://github.com/sunyiningCN/Chinese-Girl/blob/main/Wang.jpeg)
 姜鎏  中共国身份证：320583198402140225
       Tecent QQ：334589003
       支付宝：18501509616
