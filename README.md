@@ -25,4 +25,4 @@
       地址：上海世茂滨江二期（潍坊西路2弄）3号楼40i
       地址：上海福源汇居（南丹东路168号路）5号楼201
       地址：昆山绿中海小区（朝阳西路75号）45栋116号
- ![image](https://github.com/sunyiningCN/Chinese-Girl/blob/main/%E5%AD%AB%E5%81%A5%E5%AF%A7.png)
+ ![image](https://github.com/sunyiningCN/Chinese-Girl/blob/main/%E5%A7%9C%E9%8E%8F.png)
